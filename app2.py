@@ -1,0 +1,2 @@
+do anything you want to make a change and then commit it with the repo and then move to the next step as you wish. althought it is hard at first but you gonna be fine and just keep moving forward.
+Do what ever you think it is right because every still rotate the way it gonna be
